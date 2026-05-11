@@ -1,4 +1,4 @@
-
+Evernote for macOS instant Integration: note encryption & widgets is the best Evernote for macOS integration, featuring note encryption and widgets. Safe, efficient, and optimized
 
 
 
